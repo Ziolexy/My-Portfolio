@@ -10,7 +10,7 @@ any of the following channels:
 
 - **Discord**:
 [lunaa_salt](https://discordapp.com/users/1191925797976539238)
-- **YouTube**: [LUNAAR_SALT]((https://youtube.com/@lunaar_salt?si=BKbgl5VBaQpaGCIL))
+- **YouTube**: [LUNAAR_SALT](https://youtube.com/@lunaar_salt?si=BKbgl5VBaQpaGCIL)
 
   ## Thank You!
 
